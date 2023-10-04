@@ -1,4 +1,4 @@
-### Я ДУРААААА
+### Всем прив кд чд
 
 <!--
 **lerusiksimpopulik/lerusiksimpopulik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
